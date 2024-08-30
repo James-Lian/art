@@ -1,2 +1,3 @@
 # Art Repository
-A collection of physical art works. Some mediums that I work with include pencil and pen (and potentially more in the future). 
+A collection of my physical artworks. Some mediums that I work with include pencil and pen (and potentially more in the future). 
+Some of my artworks made this summer (2024) pertain to my summer vacation. During my summer vacation, I was inspired by several of my vacation destinations to sketch pen pieces, for fun. I drew anything that I found cool or memorable.
